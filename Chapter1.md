@@ -6,7 +6,7 @@
 
 ###### (ONE DAY EARLIER)
 
-The sixty-five-year old trophy case sat in the upstairs hallway like a sacred relic. The light bouncing off the iridescent glass panes gave it an almost mystical ambiance. Five rows of solid silver and gold. Five rows, two lifetimes, and more accumulated achievement than most mortals could expect to accomplish in three times their expected lifespan.
+The sixty-five-year old trophy case sat in the upstairs hallway like a sacred relic. The light bouncing off the iridescent glass panes gave it an almost mystical ambiance. Five rows of solid silver and gold symbols of achievement. Five rows, two lifetimes, and more accumulated achievement than most mortals could expect to accomplish in three times their expected lifespan.
 
 As he passed his hands through his straight, dark hair, Jake Addison stood there staring at the rows of medals and academic achievement. _How could anyone achieve this much? How did the genetic gifts skip over me?_ He reached for a lock of hair above his ear which he tended to twist when he was nervous.
 
